@@ -7,7 +7,7 @@ moist, buttery, and topped with an easy cream cheese frosting.
 * Cook time : 30minutes
 * Total time : 2hours
 * Servings : 10slices
-Extra Notes :
+ Extra Notes :
 * Freezing Instructions - Cake will freeze well for up to 3 months, thaw overnight in the refrigerator,
 then bring to room temperature. Frosting will also freeze for up to three months, thaw overnight in
 the refrigerator, then bring to room temperature and mix well before frosting the cake.
